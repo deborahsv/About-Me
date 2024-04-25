@@ -11,4 +11,4 @@ Cover letter
 
 - ⚡ I am eager to contribute and learn in a dynamic and challenging environment.
 
-- 📫 WhatsApp: +55 (11)98963-6335 / E-mail: deborah.jcvieira@gmail.com.
+
