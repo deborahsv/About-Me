@@ -1,4 +1,4 @@
-# About-Me
+# deborahsv
 Cover letter
 
 - 👋 My name is Déborah S. Vieira, and i am 21 years old. I am from Brazil. I completed high school in 2019 and began pursuing a bachelor's degree in Biomedicine. However, I decided to discontinue my studies in Biomedicine with only one year left to finish the program. Despite being close to completion, I realized that I no longer identified with the profession and felt dissatisfied.
